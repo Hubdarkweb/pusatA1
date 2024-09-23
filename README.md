@@ -18,7 +18,7 @@ REKOMONDASI MAKEK DOMAIN SENDIRI
 Bisa Donasi Seikhlasnya 🤣
 
 Youtube Tutorial
-https://youtu.be/OkVAQVFIPPc
+https://youtu.be/TOpPLUG 
 
 Sedia AkunSsh Premium 10k isp indo & Sgdo
 ### BISA HUBUNGI
